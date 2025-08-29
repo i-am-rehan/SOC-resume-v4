@@ -1,1 +1,0 @@
-# SOC-resume-v4
